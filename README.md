@@ -1,1 +1,1 @@
-# atividade-de-curr-culo
+# atividade-de-curri-culo
